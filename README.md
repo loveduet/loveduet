@@ -7,13 +7,19 @@
 · · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·
 
 
-HIHIHII!!! im spoke/ken.. but just call me whatever pony i am at the moment!!
+HIHIHII!!! we r a sys.. whoev main front -> using their pony OK.. OK!
 
 
 I DONT MIND INTERACTIONS whisper tho..ok? ok..
 
 
-fav duos patchbreakers, daybreak, blindfold brothers & odyessy!
+i’m kinda bad at keeping convos sorrrryyy sorry esp if they’re not w/ psys T_T
 
 
-OK THATS ALL check out my partner’s github ok! ok BYEBYEE!!
+OK THATS ALL I WILL PUT HERE check out my partner’s github ok! ok BYEBYEE!!
+
+· · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·
+
+![](https://files.catbox.moe/e7r5vl.png)
+
+· · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·

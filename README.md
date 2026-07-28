@@ -10,6 +10,9 @@
 HIHIHII!!! we r a sys.. whoev main front -> using their pony OK.. OK!
 
 
+PREF DONT TREAT US LIKE OUR SOURCE PLS
+
+
 I DONT MIND INTERACTIONS whisper tho..ok? ok..
 
 

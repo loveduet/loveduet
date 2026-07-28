@@ -1,4 +1,4 @@
-[![typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=000000&width=500&lines=&22i+hear+everyone+looking+at+me..%22;%22see%2C+it’s+a+lie%2C+i+can+see+right+through+you!%22)](https://git.io/typing-svg)
+[![typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=600&lines=%22i+hear+everyone+looking+at+me..%22;%22see%2C+it’s+a+lie%2C+i+can+see+right+through+you!%22)](https://git.io/typing-svg)
 
 · · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·
 

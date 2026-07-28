@@ -23,6 +23,6 @@ OK THATS ALL I WILL PUT HERE check out my partner’s github ok! ok BYEBYEE!!
 
 · · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·
 
-![](https://files.catbox.moe/xn1vmn.png))
+![](https://files.catbox.moe/xn1vmn.png)
 
 · · ────────────────── ꒰ঌ·✦·໒꒱ ──────────────── · ·
